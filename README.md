@@ -1,7 +1,4 @@
-- Founder **Genius Gaming Campus** 🎓
-- Manager **HunterZ Assaderie** 🏜️
-- Partner & CTO of **Optivity** 🚀
-- Gaming Campus **Lyon** 📍
+- Respark Studio
 - .  ˚　.　　✦　　  🌍 　˚　　.　✦　　˚
 
 <!---
